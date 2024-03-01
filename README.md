@@ -1,16 +1,15 @@
-### Hi there 👋
+### Tin tức OKVIP
 
-<!--
-**tintucokvip/tintucokvip** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[tin tức okvip](https://okvip.name/tin-tuc-okvip/) - Tin tức, sự kiện mới nhất về OKVIP, các đối tác, công ty thành viên sẽ được chúng tôi liên tục cập nhật đến khách hàng Theo dõi các thông tin mới nhất giúp bạn đọc hiểu thêm về chúng tôi cũng như có cái nhìn khách quan, chính xác về hoạt động, văn hóa của doanh nghiệp
 
-Here are some ideas to get you started:
+- Địa chỉ: 201/3 QL13, Hiệp Bình Chánh, Thủ Đức, Thành phố Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0906009223
+
+https://gravatar.com/tintucokvip
+
+https://www.tumblr.com/tintucokvip
+
+https://www.twitch.tv/tintucokvip/about
+
+https://about.me/tintucokvip/
